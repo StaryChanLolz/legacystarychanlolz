@@ -1,0 +1,2 @@
+# legacystarychanlolz
+old readme
