@@ -1,11 +1,11 @@
-# <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=30px;> `>` STARYCHANLOLZ !!
+# <img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/star.gif?raw=true" height=30px;> `>` STARYCHANLOLZ !!
 ![](https://caterpie.crd.co/assets/images/gallery15/f59aca00.gif?v=f7b7a140) 
 `> " How can you say "I love you", when you won't confide in me...? "`
 
 ***
 
 >![bib](https://i.postimg.cc/rwvysshd/bisexual-3-stripes-20-px.png)![nonb](https://i.postimg.cc/1533YLnz/non-binary-4-stripes-20-px.png) `>` STARY (Not Starry I will EXILE YOU/HVYJHVYJ) `;` ANY PRONOUNS `;` (SUSPECTED) NEURODIVERGENT AND CLINICALLY STUPID `;` TAKEN<33 (APOLLYON I LOVE YOU SO MUCH GRIPS YOU/VNSRS) ![starz](https://pixels.crd.co/assets/images/gallery45/2c6d0e4d.gif?v=379361a4)![dfsdffd](https://pixels.crd.co/assets/images/gallery134/f68ad51e.gif?v=379361a4)
-# <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=30px;> `>` BYI !!
+# <img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/star.gif?raw=true" height=30px;> `>` BYI !!
 >`>` I HAVE COVER/CUDDLE DISCOMF!!! ASK TO CUDDLE WITH ME OR COVER ME UNLESS YOU ARE CLOSE, YOU KNOW WHO YOU ARE!!!!
 
 >`>` I HAVE [**RSD**](https://my.clevelandclinic.org/health/diseases/24099-rejection-sensitive-dysphoria-rsd). I DON'T TAKE TOO WELL TO CRITICISM. PLEASE DO NOT GIVE ME UNWARRANTED CRITICISM!
@@ -28,12 +28,12 @@
 
 ***
 
-# <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=30px;> `>` INTERESTS !!
+# <img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/star.gif?raw=true" height=30px;> `>` INTERESTS !!
 `> " Come on PeroPero, being poor is not the excuse to make me look like this! "`
 
 ***
 
-## <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Character_Samson_icon%20(1).png?raw=true" height=20px;> <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=18px;> LIKES/FANDOMS !! ;
+## <img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/samson_icon.png?raw=true" height=20px;> `>` <img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/star.gif?raw=true" height=18px;> LIKES/FANDOMS !! ;
 > **`[[`** **Special interests r bolded** , *Current hyperfixations are italicised* **`]]`**
 
 > `>` ***[The Binding of Isaac](https://bindingofisaacrebirth.fandom.com/wiki/Binding_of_Isaac:_Rebirth_Wiki) (CURRENT HYPERFIXATION!!! IT'S LIKE; KIIIINIDA IMPORTANT!!)*** 
@@ -52,11 +52,11 @@
 
 > `>` **ETC**; 60 Seconds, Persona 5, Touhou Project, Celeste, Scott Pilgrim (All adaptions), DHMIS, Needy Streamer Overload, Dog Man/Captain Underpants, DJMAX, Kindergarten, OMORI, Fancy Pants Adventures, computers/robots or mechs (computer viruses n old windows OS history too,,,,), stars/space, drawing, music, video games (esp. rhythm games), music (more, ask me and i may know about it!) 
 ***
-<img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Killer_instinct%20(1).png?raw=true" height=150px;> 
+<img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/killer_instinct.png?raw=true" height=150px;> 
 
 ***
 
-## <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Character_Tainted_Samson_icon%20(1).png?raw=true" height=20px;> `>` <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=18px;> KINS N FAVES !! ;
+## <img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/tsamson_icon.png?raw=true" height=20px;> `>` <img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/star.gif?raw=true" height=18px;> KINS N FAVES !! ;
 > `>` [***SAMSON***](https://bindingofisaacrebirth.fandom.com/wiki/Samson) ***[+[TAINTED](https://bindingofisaacrebirth.fandom.com/wiki/Tainted_Samson)/[TARNISHED](https://tboiepiphany.wiki.gg/wiki/Tarnished_Samson)]*** ***;*** *HIGHKIN/COMFORT CHARACTER ;* ***THE BINDING OF ISAAC*** ![starz](https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822)
 
 > `>` [***PIZZANO***](https://sugary-spire.fandom.com/wiki/Pizzano) ***;*** *COMFORT CHARACTER/HIGHKIN ;* ***SUGARY SPIRE***
@@ -79,11 +79,11 @@
 
 > `>` [***DR. FETUS***](https://supermeatboy.fandom.com/wiki/Dr._Fetus) ***;*** *COMFORT CHARACTER ;* ***SUPER MEAT BOY*** 
 ***
-<img src="https://camo.githubusercontent.com/1cad70466514cf574ae456ee2024e7f814bd7b035c4d09bcaab6b3249d2d9ac1/68747470733a2f2f666f7572736f756c732e636f6d2f77702d636f6e74656e742f75706c6f6164732f323032322f30312f722d626c6f6f645f6c7573742e706e67" height=300px;>
+<img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/bloody_lust.png?raw=true" height=300px;>
 
 ***
 
-# <img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/7ff6f67d.gif?raw=true" height=30px;> `>` OTHER !!
+# <img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/star.gif?raw=true" height=30px;> `>` OTHER !!
 
 ![](https://caterpie.crd.co/assets/images/gallery15/f59aca00.gif?v=f7b7a140) 
 `> " Her ability is the greatest skill in Muse Dash history, the power to defy the laws of physics! Rotate the device 90 degrees counter-clockwise and turn it into a vertical rhythm game! "`
@@ -104,7 +104,7 @@
 
 >`>` Apollyoooon hiiiii I loooove you you're my everything man you're so awesome I love you so much w all my heart/p /vvpos (Apollyon is my loooveely [QPR](https://en.wikipedia.org/wiki/Queerplatonic_relationship#:~:text=Queerplatonic%20relationships%20(QPR)%20and%20queerplatonic,to%20a%20conventional%20romantic%20relationship.) partner yall better treat them SO well RN)
 ***
-<img src="https://github.com/StaryChanLolz/starychanlolz/blob/main/Untitled91_20240329200048%20(1).png?raw=true" height=400px;>
+<img src="https://github.com/StaryChanLolz/legacystarychanlolz/blob/main/trsamson_unlock.png?raw=true" height=400px;>
 
 ## <img src="https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=b3554822" height=24px;> `>` love you guys keep doin what youre doin
 <a href="https://www.youtube.com/watch?v=gPDjdR3WoaA"><img src="https://media.tenor.com/bkHY4-Okl3MAAAAi/the-binding.gif"></a>
